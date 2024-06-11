@@ -1,2 +1,2 @@
 # boy
-kookmin univ.
+kookmin univ...
